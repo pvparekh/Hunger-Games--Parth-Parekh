@@ -1,1 +1,1 @@
-# Rising TIdes-Parth-Parekh
+# Rising Tides-Parth-Parekh
